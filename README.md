@@ -4,8 +4,4 @@ I´m Teacher in a School.
 I´m student in Redi!!! DLP - Introduction to Computer Science.
 I´m currently learning Projekt Manager und Scrum Master.
 I live in Munich.
-I am very motivated to do this course, because I find this topic super interesting. 
-I also want to direct my professional career in this sector.
-and I see that this training can be a great opportunity for my professional future.
-I´m not experience with It Computer, because I worked as a teacher in a school 
-and it had nothing to do with this field. 
+📫 Erreichbarkeit unter raquelromero_@hotmail.com
